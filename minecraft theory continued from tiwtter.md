@@ -75,6 +75,10 @@ source: https://twitter.com/DoNutDecember/status/1756593718268661873
 
 nether has higher strange quarks that overworld (which I wrote in my minecraft theory 2023). Then, I conclude that strange quarks have enough mass to decay into muons, therefore there are more muons in the nether. THen, I explain that an attacting force also exists in muon.
 
+source: https://twitter.com/DoNutDecember/status/1761886309520470230
+
+smaller orbitals makes w form. w like tungsten which means dense rock. without 2 different names that would have not been possible (international relations emoji)
+
 
 #### eye of ender
 
@@ -98,6 +102,12 @@ I conclude that endermen hates water because endermen knows that water can cause
 source: https://twitter.com/DoNutDecember/status/1756746068358729772
 
 Endermen eyes are influenced by the purple aerosuits in schwarzesmarken. Therefore, they are purple.
+
+#### end portal frame
+
+source: https://twitter.com/DoNutDecember/status/1760505621776937359
+
+detailed diagram of the end portal frame. the spawner is very powerfull and can infinitely regenerate the endstone shell
 
 
 
@@ -170,6 +180,25 @@ source: https://twitter.com/DoNutDecember/status/1758492024465244275
 
 This time the connection between the wither achievements (Begining?) (Begining.) is that the below neon burning shell is all the ingredients for a beacon
 
+source: https://twitter.com/DoNutDecember/status/1760381515140112560
+
+nether star is made of neon
+
+
+source: https://twitter.com/DoNutDecember/status/1760387398218010910
+
+begining achievement is finally solved. Both achievement etymology has nothing to do with withers.
+
+source: https://twitter.com/DoNutDecember/status/1760472512574390542
+source: https://twitter.com/DoNutDecember/status/1760472940611518869
+
+the endermen use astronomy to create and activate the beacon. silicon (glass and obsidian), oxygen (glass and obsidian), and iron (iron blocks and obsidian) were used because they were the most common
+
+source: https://twitter.com/DoNutDecember/status/1761916938899386390
+source: https://twitter.com/DoNutDecember/status/1761917072848671014
+source: https://twitter.com/DoNutDecember/status/1761917413438714216
+
+why oxygen in beacon
 
 
 #### dragon egg
@@ -193,6 +222,10 @@ source: https://twitter.com/DoNutDecember/status/1759853352958009614
 Lise (nanjolno character) and Jean (name of the ender dragon) have the same etymology as both mean "God is gracious" and so is lise because satisfaction is grace.
 
 Lise's last name hohenstien means "high rock". When the ender dragon dies. the portal spawns on the highest part of the end island at 0,0 (source:  https://youtu.be/B4WX1Ia75cs?t=18 ). Even during earlier versions, The portal spawns where the dragon is which is most likely flying and flying is done high up. The dragon egg spawns on the highest [rock] bedrock block on it. The word high appears 3 times.
+
+source: https://twitter.com/DoNutDecember/status/1760509347354833061
+
+the ender dragon had to come after the wither because ghast had to first exist which ghasts came after wither.
 
 
 
@@ -238,11 +271,15 @@ Context (from my minecraft theory 2023): The end exist due to the strategic plac
 Outer end islands already existed in minecraft ever the main island existed. When the ender dragon died in the early versions the exit portal depends on where the ender dragon died. Then in later versions of minecraft, the exit portal is always at 0,0 which is the correct placement to create a portal around the main island which teleports everything leaving the main island to the outer islands. Since in the later version, the exit portal is placed even when the ender dragon is alive, steve can skip the end fight and go to the outer islands.
 
 
+#### lise hohenstien  and silverfish
 
+source: https://twitter.com/DoNutDecember/status/1760213862266077239
 
+end portal room designed with lise hohenstiens and silverfish being her children
 
+source: https://twitter.com/DoNutDecember/status/1760784135688192271
 
-
+ho in hohenstien. ho are more likely to get stds like silverfish is a std.
 
 
 
@@ -257,24 +294,139 @@ donno if true don't care. probably on the day after april fools to make it mean 
 
 
 
+#### endermen wither fight
+
+source: https://twitter.com/DoNutDecember/status/1760368512231465112
+
+instead of the endermen immediately fighting the wither, I thought about what if the endermen were also discovering astronomy.
+
+source: https://twitter.com/DoNutDecember/status/1760368931401843000
+
+after the withers killed all the endermen in the nether, they float up trying to go to the overworld. The overworld endermen came back to the nether through nether portal. THe endermen looked up and saw lights above the nether as if they are supernovas. They conclude that god is creating a new heaven between the earth and nether.
+
+source: https://twitter.com/DoNutDecember/status/1760375883506782549
+
+an achievement was made for discovering the lights above the nether and it was the "begining?" achievement
+
+source: https://twitter.com/DoNutDecember/status/1760376323136974956
+
+the minecraft crust was renamed to overworld since the endermen believe that there is now a heaven between the crust and nether.
+
+source: https://twitter.com/DoNutDecember/status/1760376594856600003
+source: https://twitter.com/DoNutDecember/status/1760378351368163773
+source: https://twitter.com/DoNutDecember/status/1760378719691026631
+
+in order for endermen in my minecraft theory 2023 to joke about "nether star", they have to know about blackholes
+
+source: https://twitter.com/DoNutDecember/status/1760377709522260225
+
+2 conflicting etymologies of neon, both of which are important
+
+source: https://twitter.com/DoNutDecember/status/1760386832993591689
+
+nether stars were first discovered as if they dropped from supernovas.
 
 
 
 
+#### real reason why the endermen hated the ghast
+
+source: https://twitter.com/DoNutDecember/status/1760380023171637695
+source: https://twitter.com/DoNutDecember/status/1760380353410154982
+source: https://twitter.com/DoNutDecember/status/1760380614509805884
+
+endermen observed that defeating the wither caused the nether to lock the heaven away from them with a grey sky (bedrock). The endermen thought that fighting the ghast in the overworld would cause the same to the overworld sky.
+
+source: https://twitter.com/DoNutDecember/status/1760453916997615904
+
+like how a child with a pet cataillar with a maggot infestation would think the white dots are cool and not a maggot infestation, the endermen think the lights (also white dots) in the nether is heaven and not their enemies.
+
+
+#### alternate reason for no wither in end
+
+source: https://twitter.com/DoNutDecember/status/1760381515140112560
+
+if this was true (to patch that withers can go through end portal), more holes would appear.
+
+
+#### how the endermen prove the existance of God
+
+source: https://twitter.com/DoNutDecember/status/1760467421700251876
+source: https://twitter.com/DoNutDecember/status/1760468231511265361
+source: https://twitter.com/DoNutDecember/status/1760468564291547594
+
+endermen observe radiactive decay for the first time from the supernova. The endermen thought that it was holy.
+
+source: https://twitter.com/DoNutDecember/status/1760470133091238037
+source: https://twitter.com/DoNutDecember/status/1760471106186588505
+
+endermen compare the nickel series (nickel, cobalt, iron) to the trinity.
+
+source: https://twitter.com/DoNutDecember/status/1760479460724277567
+source: https://twitter.com/DoNutDecember/status/1760479722331386142
+source: https://twitter.com/DoNutDecember/status/1760480125408149751
+
+endermen connects the half-life of nickel and cobalt to the trinity.
+
+source: https://twitter.com/DoNutDecember/status/1760480785289634239
+source: https://twitter.com/DoNutDecember/status/1760481283765858701
+source: https://twitter.com/DoNutDecember/status/1760481406248006029
+
+endermen discover bismuth and connects it too. They on accidencent got that 83 is connected to bismuth.
+
+source: https://twitter.com/DoNutDecember/status/1761109986053091455
+source: https://twitter.com/DoNutDecember/status/1761480069401235900
+
+how trinity connects to silicon, oxygen, iron too. (ingridients to activate beacon)
+
+
+#### e=mc^2 in minecraft
+
+source: https://twitter.com/DoNutDecember/status/1760505949188456759
+
+end gateway and the portal that stabilize the end islands work the same way.
 
 
 
 
+#### elements
+
+source: https://twitter.com/DoNutDecember/status/1761914263520596085
+source: https://twitter.com/DoNutDecember/status/1761914581457211416
+
+endermen believe helium is like carbon
+
+source: https://twitter.com/DoNutDecember/status/1761915828541313220
+source: https://twitter.com/DoNutDecember/status/1761915981763391705
+
+lead and bismuth is assciated with water.
+
+source: https://twitter.com/DoNutDecember/status/1761916516889415752
+
+endermen theorize white dwarfs are the angels that they will become
 
 
+source: https://twitter.com/DoNutDecember/status/1761920789589238031
+
+summary of what the endermen believe about the elements
 
 
+#### berlin wall
+
+source: https://twitter.com/DoNutDecember/status/1763377434299077086
+
+connects berlin to fortress nothing else
 
 
+#### roman historian joke
 
+source: https://twitter.com/DoNutDecember/status/1763420700528832842
 
+to get the joke: alpha means helium atom, but it also means a guy who is strong
 
+source: https://twitter.com/DoNutDecember/status/1763421908278657276
 
+forgot how to get this
 
 
 

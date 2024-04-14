@@ -91,6 +91,10 @@ source: https://twitter.com/DoNutDecember/status/1759849017142284502
 
 Jean was probably chosen at random or a girl that notch knew. 
 
+souce: https://twitter.com/DoNutDecember/status/1760215769231540272
+
+lise hohenstien's last name means high stones so that is why silverfish spawn in extreme hills biome.
+
 
 #### shulker
 
@@ -99,7 +103,12 @@ many theories are about endermen harvasting enderpearls from shulker, but my the
 
 
 
+#### pigmen
 
+source: https://twitter.com/DoNutDecember/status/1760214859621240844
+source: https://twitter.com/DoNutDecember/status/1760215331962806503
+
+still don't know if pigmen blood being green from hydrogen sulfide has already been theorized.
 
 
 

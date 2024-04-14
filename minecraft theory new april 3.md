@@ -3,7 +3,13 @@
 
 Before the formation of the overworld-nether void, endermen lived long and happy life. However, the same endermen in heaven want revenge against the endermen on overworld. They believed that the good treatment (that they recieved on earth) had hurted them. The reason is that endermen being treated good lived longer on earth, which means that they waited more to go to heaven. It is like a person eating a delicious big dinner, only to be too full to eat the birthday cake later at  night. The endermen in heaven got more and more angry thinking about the time they missed out in heaven when they were busy living on earth. So the endermen decended down from heaven in the form of withers. Luckily most of the soul sand was in the nether, so most of the withers flew up from the nether roof trying to get the overworld. After the void was created, they end up teleporting back to heaven.
 
+#### the first beacon token was liquid neon gas
 
+thus the endermen discover super cold technologies. liquid neon allows them to choose levitation instead the existing effects. so that is why endermen design the shulker to do levitation
+
+#### endermen predicted polonium
+
+poland etymology is "land of feilds". Like how bismuth is the ocean around noahs ark. the feild is what was left after the water has gone.
 
 
 #### origins of 1.8 update prismarine, guardian, royal guardian, ect...
