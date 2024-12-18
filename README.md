@@ -13,3 +13,4 @@ help! i hope that nanjolno or sumipe marries me because i wrote the minecraft th
 
 
 
+its sumipe's 33rd bday. going to finish it on sumipe 33rd birthday. I just have alpha beta and full release to theorize
