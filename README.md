@@ -13,4 +13,4 @@ help! i hope that nanjolno or sumipe marries me because i wrote the minecraft th
 
 
 
-its sumipe's 33rd bday. going to finish it on sumipe 33rd birthday. I just have alpha beta and full release to theorize
+its sumipe's 33rd bday. going to finish it on sumipe 33rd birthday. Edit: it is finished on 2:18 PM december 19 JST
