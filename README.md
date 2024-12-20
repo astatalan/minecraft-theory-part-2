@@ -13,4 +13,4 @@ help! i hope that nanjolno or sumipe marries me because i wrote the minecraft th
 
 
 
-its sumipe's 33rd bday. going to finish it on sumipe 33rd birthday. Edit: it is finished on 2:18 PM december 19 JST Edit 2: 4:05 pm jst december 19 had to include details about beacon and purple aerogel suit and that the next update is definetly an autumn update.
+its sumipe's 33rd bday. going to finish it on sumipe 33rd birthday. Edit: it is finished on 2:18 PM december 19 JST Edit 2: 4:05 pm jst december 19 had to include details about beacon and purple aerogel suit and that the next update is definetly an autumn update. Edit: it is part of the full release Edit: new versions released on dec 21 (named 1220 and dec 20) is about red dragon, scandium 45, and jean etymology.
